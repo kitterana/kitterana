@@ -4,3 +4,40 @@
 please read carrdㅤㅤ before inting !
     
 󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                               [carrd](https://softblond.carrd.co/#) ㅤㅤ
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+my bully @Tillsguitar being a weirdo
+
+<p align="center">
+<img width="534" height="411" alt="IMG_4468" src="https://github.com/user-attachments/assets/fdfae451-da13-4ecc-b5ee-1a9196832277" />
+
