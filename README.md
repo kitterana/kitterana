@@ -3,4 +3,4 @@
 <p align="center">
 please read carrdㅤㅤ before inting !
     
-󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                               [carrd](https://softblond.carrd.co/#) ㅤㅤ
+󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                               [carrd](https://mrkoski.carrd.co/#) ㅤㅤ
