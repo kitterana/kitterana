@@ -1,6 +1,6 @@
 <p align="center">
-  <img width="436" height="317" alt="Untitled160_20260802173954" src="https://github.com/user-attachments/assets/10381f28-45c1-4cfb-999f-14482a94a58e" />
+  <img width="747" height="502" alt="IMG_4712" src="https://github.com/user-attachments/assets/50194d21-33e9-456f-b821-1ec6cf664fd8" />
 <p align="center">
-please read carrdㅤㅤ before inting !
+please read carrdㅤㅤ before interacting !
     
-󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                               [carrd](https://mrkoski.carrd.co/#) ㅤㅤ
+󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                               [carrd](https://kitterana.carrd.co/#) ㅤㅤ
