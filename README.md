@@ -1,6 +1,3 @@
 <p align="center">
-  <img width="477" height="523" alt="Untitled164_20260823021156" src="https://github.com/user-attachments/assets/b45234c2-240f-4e5c-a273-1987b680d90c" />
+  <img width="525" height="475" alt="Untitled167_20260830132454" src="https://github.com/user-attachments/assets/5d0ffa47-fd17-4059-9874-377abec671f5" />
 <p align="center">
-please read carrd before interacting !
-    
-󠀠󠀠 󠀠󠀠󠀠󠀠 󠀠 󠀠                                    󠀠 󠀠 󠀠 󠀠 󠀠󠀠 󠀠 󠀠                                  󠀠 󠀠 󠀠 󠀠 󠀠 󠀠󠀠󠀠                                      󠀠 󠀠󠀠󠀠󠀠 󠀠󠀠󠀠󠀠                                       󠀠󠀠󠀠󠀠                                         󠀠󠀠󠀠󠀠                                                                                                                                    [carrd](https://kitterana.carrd.co/#) ㅤㅤ
